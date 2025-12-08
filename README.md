@@ -8,6 +8,8 @@
 
 ; i'm friendly if you are, might be a bit quiet / awkward at first tho. any type of interaction is appreciated! i do like making new buddies :) i may be quiet sometimes, but it's only because i can't think of anything to say, it's most likely not your fault.
 
+; i might not be online much atm, i have very busy / tiring days,,
+
 
 ᯓ★
 
