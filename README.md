@@ -2,9 +2,10 @@
 
 ; hello🐻
 
-; i'm kontio / ki, or literally any word for bear,, he/him pronouns for the non fins. i draw and i write, i would like to write a book about my oc's someday
+; i'm kontio / ki, or literally any word for bear,, he/him pronouns for the non fins. i draw and i write
 
 ; i like finnish history, war movies, tuntematon sotilas♡, finnish war novels, kalevala ( finnish mythology ), pagan religions, and a bunch of games such as Rdr2, CoD, Mgs, KcD2 and Runo
+
 
 ; i'm friendly if you are, might be a bit quiet / awkward at first tho. any type of interaction is appreciated! i do like making new buddies :) i may be quiet sometimes, but it's only because i can't think of anything to say, it's most likely not your fault.
 
