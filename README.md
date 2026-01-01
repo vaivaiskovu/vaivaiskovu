@@ -1,6 +1,5 @@
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=vaivaiskovu&label=sotamiehia&countColor=%23697689&style=plastic)
 
-; hello🐻
 
 ; read strawpage for more info :) send me a gimmick or something
 
